@@ -9,3 +9,13 @@ The attributes that I feel I will be good include:
 * Definitely take time to celebrate accomplishments, both mine and others
 
 I am looking forward to meeting you all and learning as I go to join this fascinating trade.
+
+I signed up for the UX Fundamentals Group Session on 2/15 at 11am CDT
+
+I intoduced myself on the design-program channel: https://students-bloc.slack.com/archives/C40H7LUJ3/p1549901123008800
+
+I took part in the following surveys:
+* https://students-bloc.slack.com/archives/C3YU75H33/p1549901004001000
+* https://students-bloc.slack.com/archives/C3YU75H33/p1549595943390700
+* https://students-bloc.slack.com/archives/C3YU75H33/p1548994146293500
+
