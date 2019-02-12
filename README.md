@@ -2,9 +2,9 @@
 ## This is my first submission to the program
 
 The attributes that I feel I will be good include:
-* I am habitual learner and a self-starter
+* I am a habitual learner and a self-starter
 * I always like challenges as this is the way I grow and improve
-* I am extremly focused and disciplined.  I am analytical and like to follow processes.
+* I am extremely focused and disciplined.  I am analytical and like to follow processes.
 * If my research and findings can help another I feel it is necessary to share.  No need to have everyone dedicating their time to retrieving the same information.
 * Definitely take time to celebrate accomplishments, both mine and others
 
@@ -12,7 +12,7 @@ I am looking forward to meeting you all and learning as I go to join this fascin
 
 I signed up for the UX Fundamentals Group Session on 2/15 at 11am CDT
 
-I intoduced myself on the design-program channel: https://students-bloc.slack.com/archives/C40H7LUJ3/p1549901123008800
+I introduced myself on the design-program channel: https://students-bloc.slack.com/archives/C40H7LUJ3/p1549901123008800
 
 I took part in the following surveys:
 * https://students-bloc.slack.com/archives/C3YU75H33/p1549901004001000
